@@ -1,0 +1,5 @@
+url: http://braunerpots.com/blog
+name: braunerpots.com
+description: 'a fun little cool & awesome family blog'
+markdown: redcarpet
+pygments: true

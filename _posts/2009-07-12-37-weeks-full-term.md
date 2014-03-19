@@ -1,0 +1,16 @@
+---
+title: '37 Weeks: Full Term'
+author: Shannon
+layout: post
+permalink: /2009/07/37-weeks-full-term/
+categories:
+  - Uncategorized
+---
+Hooray – our baby is officially full term!  If  baby was born any day now his/ her lungs would be ready for the outside world. What a wonderful milestone!! Unfortunately, baby is still in a complete breech position.  This past Friday, we attempted an external version performed by the most experienced OBGYNs in hopes of manually flipping the baby.  The baby&#8217;s heart beat was perfect during the whole procedure, so he/she  obviously didn&#8217;t mind the movement&#8230; but in the end, baby didn&#8217;t agree to being head down. He said there might be a reason Baby Pots doesn&#8217;t want to turn, but there isn&#8217;t anything medically to worry about. We like to think that Baby Pots is simply really comfortable.  Dave and I were joking that, when our baby is older, we can tell the story how he/she fought off two large male OBGYNs at the age of only 37 weeks!
+
+The sad news for us is that we are now going to have deviate from our plan for a natural birth and instead schedule a Cesarean.  Most Doctors and Nurse Midwifes don&#8217;t deliver breech babies anymore, as its just too high of a risk.  I had a few tears accepting the news.  For the past 9 months we&#8217;ve been receiving pre-natal care from a woman&#8217;s birthing center called [Special Beginnings][1] (they are focused around natural childbirth). It&#8217;s almost like birthing at a bed & breakfast, complete with birthing jacuzzis and all the medical skills & items needed for low-risk pregnancies.  The staff consists of Nurse Midwifes and OBGYNs that work with the Anne Arundel Medical Center.  So now we will be birthing at [Anne Arundel Medical Center][2] which is also a great hospital.  One of the Nurse Midwifes that we have established a relationship with throughout the pregnancy will attend the Cesarean which makes me feel better.  On Tuesday, we&#8217;ll meet with the OBGYNs who will perform the Cesarean. The Cesarean will happen between 39-40 weeks (last week of July).  There is a small chance baby could flip before the Cesarean, if so we would birth at Special Beginnings.
+
+I know many people thought that we were crazy for wanting a non-medicated birth; and I also know in the heat of labor I would probably feel that we were crazy too.  However, we somewhat feel like we are missing out on a spiritual experience that we have prepared so hard for: 3 months of classes, pre-natal yoga, birthing exercises, swimming, strict healthy diet&#8230;, ahh, sigh.  The pain of labor doesn&#8217;t worry me but being cut open, having a needle in my spine and being numb makes me really nervous.  I am working on dealing with my fears and Dave has been very loving and supportive in helping me through it.  The baby&#8217;s health is our number one priority so I know once baby arrives that&#8217;s all that matters. We love you baby!
+
+ [1]: http://www.specialbeginnings.com/
+ [2]: http://www.aahs.org/womens/maternity.php?nav=pm

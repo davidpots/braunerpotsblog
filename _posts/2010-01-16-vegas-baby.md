@@ -1,0 +1,18 @@
+---
+title: Vegas Baby
+author: Shannon
+layout: post
+permalink: /2010/01/vegas-baby/
+categories:
+  - Uncategorized
+---
+[<img class="alignnone size-thumbnail wp-image-1329" title="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 011" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-011-150x150.jpg" alt="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 011" width="150" height="150" />][1] [<img class="alignnone size-thumbnail wp-image-1330" title="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 046" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-046-150x150.jpg" alt="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 046" width="150" height="150" />][2] [<img class="alignnone size-thumbnail wp-image-1331" title="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 261" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-261-150x150.jpg" alt="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 261" width="150" height="150" />][3] [<img class="alignnone size-thumbnail wp-image-1334" title="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 497" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-497-150x150.jpg" alt="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 497" width="150" height="150" />][4] [<img class="alignnone size-thumbnail wp-image-1335" title="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 170" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-170-150x150.jpg" alt="Las Vegas, 2010, Dziadziu, Norah, Anya, Tyler, John,Nina,Shannon 170" width="150" height="150" />][5] [<img class="alignnone size-thumbnail wp-image-1336" title="IMG_4879" src="http://braunerpots.com/blog/wp-content/uploads/2010/02/IMG_4879-150x150.jpg" alt="IMG_4879" width="150" height="150" />][6]
+
+<span id=":15" dir="ltr">Norah has her baby wings now, she took her first airplane flight! We flew to Las Vegas with Go Go & Pop Pop to meet</span> her Great Dziadziu, Great Babci, Aunt Nina, Uncle John, & cousins Anya and Tyler all in one trip!  She loved meeting everyone!  The lights and excitement of  Vegas were really fun for this party girl!  Dziadziu gave the grandchildren and great grandchildren a fun lesson on trains.  The cousins showed Norah how much fun it is to play and Uncle John and Aunt Nina taught Norah how to make mojito&#8217;s, just kidding!  We all had such a wonderful time together!
+
+ [1]: http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-011.JPG
+ [2]: http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-046.JPG
+ [3]: http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-261.JPG
+ [4]: http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-497.JPG
+ [5]: http://braunerpots.com/blog/wp-content/uploads/2010/02/Las-Vegas-2010-Dziadziu-Norah-Anya-Tyler-JohnNinaShannon-170.JPG
+ [6]: http://braunerpots.com/blog/wp-content/uploads/2010/02/IMG_4879.JPG
